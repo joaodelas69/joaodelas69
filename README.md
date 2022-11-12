@@ -1,4 +1,4 @@
-### Olá 👋
+### Dae rapaziada, por enquanto aqui não tem nuita coisa, mas marcha no progresso! 🚀
 
 <!--
 **joaodelas69/joaodelas69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
