@@ -1,4 +1,4 @@
-### - Dae rapaziada, por enquanto aqui não tem nuita coisa, mas marcha no progresso! 🚀
+### - 🚀
 
 Contatos:
 
